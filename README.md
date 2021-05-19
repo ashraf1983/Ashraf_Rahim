@@ -3,7 +3,7 @@
 
 <!-- Add your details -->
 ✉️: ashrafrahim1983@gmail.com
-&nbsp;&nbsp; 📲 +91-XXXXXXXXXX
+&nbsp;&nbsp; 📲 +65-XXXXXXXXXX
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; [LinkedIn](https://www.linkedin.com/in/ashraf-r-506a3b60/) 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
 <!-- CONTACT Section Ends -->
